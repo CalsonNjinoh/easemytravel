@@ -4,7 +4,7 @@ Please note that if you are not granted a visa, the school will refund this fee.
 
 ## What happens after you have been granted admission ? 
 
-**Option 1** : 
+## Option 1## : 
 
 We can apply for your visa on your behalf, ensuring a competitive application with a high chance of success. You will provide us with the necessary documents you have, and we will work with you to obtain any documents required. Once your visa is granted, you will pay us 2 million francs. Before submission, a non-refundable amount of 150,000 francs will be required, and after submission, the remaining 150,000 francs will be completed, resulting in a total payment of 300,000 francs.we will refund you 150,000 thousand francs if your visa is denied . If you need to reapply for your visa, the reapplication will be done at no additional cost.
 
