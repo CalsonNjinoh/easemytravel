@@ -25,7 +25,8 @@ Regardless of which optioon you select We will work to get your refunds and any 
 | Service fee after admission   | **100,000 francs**          | Non-refundable         |
 | Tuition fee                   | **1 to 4 million francs**   | Refundable and optional|
 | Application Service fee       | **300,000 francs**          | 150,000 refundable     |
-| After Visa is out             | **2 million francs**        | -                      |
+| After Visa is out             | **2 million francs**        | 500,000 francs         |
+| Visa fee paid to immigration  | **67,000 francs**           | Non-refundable         |
 | Re-application fee            | **0 francs**                | -                      |
 
 
